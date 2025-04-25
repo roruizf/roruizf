@@ -11,4 +11,4 @@
 
 🌍 Passionate about sustainability, I use my GitHub space to test ideas that combine engineering, energy, and data.
 
-📫 Contact: roruizf@gmail.com | Portfolio: https://https://linktr.ee/roruizf
+📫 Contact: roruizf@gmail.com | Portfolio: https://linktr.ee/roruizf
